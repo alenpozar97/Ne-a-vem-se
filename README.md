@@ -1,2 +1,5 @@
 # Ne-a-vem-se
-Projektna naloga za UVP
+## prvi teden
+dogjaja se na polno lol
+V èetrtek je Škisova ajga
+
